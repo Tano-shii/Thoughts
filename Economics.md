@@ -21,9 +21,9 @@ person in the debate ammunition to use against you. They will immediately questi
 
 This *aversion* towards anything differing from what might be considered the norm drives hatred towards other people and innovation. A burning topic that is 
 included in this is AI. A horrific number of false claims regarding AI are made on a potentially hourly basis. People hate being wrong, but being wrong is
-the most important part of us as humans. Real science is done to question whether something is right. Hypotheses aren't tested by showing the "truthiness" of
-the hypothesis. Rather, they are tested to see if they are wrong. Anyone who tries to prove a hypothesis right has already made a critical error as many statements
-can by proven correct through dubious methods or subterfuge. 
+the most important part of us as humans. Real science is done to question whether something is right. Hypotheses aren't tested by showing that a hypothesis is correct.
+Rather, they are tested to see if they are wrong. Anyone who tries to prove a hypothesis right has already made a critical error as many statements
+can be proven correct through dubious methods or subterfuge. 
 
 It is inherently infantile to loathe being incorrect. Consider the Italian polymath, Galileo. He set out to prove many previously assumed truths incorrect. 
 He, as many today, was persecuted harshly for this reason. Through persecution, you propogate and perpetuate the opposing belief. This can be seen in early 1st
