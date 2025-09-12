@@ -50,7 +50,7 @@ performed by the RCC under the Pope's rule, another more modern one would be the
 great harm to their country due to poor decision making. 
 
 Next, consider socialism. Socialism is like a beautiful book written in poor English. The idea is purely utopian; however, the aforementioned corruption and selfish
-nature of many humans of this age prevents such an occurence. Aside from corruption, these principles do not foster innovation as there is no real reward for excellence
+nature of many humans of this age prevents such an occurrence. Aside from corruption, these principles do not foster innovation as there is no real reward for excellence
 in a true socialistic society. Positive reinforcement is a very basic and well understood concept that serves to further this point. By removing the reward for work, 
 work will not be done. Additionally, the same binary class structure of government and citizens is created.
 
