@@ -26,7 +26,7 @@ Rather, they are tested to see if they are wrong. Anyone who tries to prove a hy
 can be proven correct through dubious methods or subterfuge. 
 
 It is inherently infantile to loathe being incorrect. Consider the Italian polymath, Galileo. He set out to prove many previously assumed truths incorrect. 
-He, as many today, was persecuted harshly for this reason. Through persecution, you propogate and perpetuate the opposing belief. This can be seen in early 1st
+He, as many today, was persecuted harshly for this reason. Through persecution, you propagate and perpetuate the opposing belief. This can be seen in early 1st
 century along with the 2nd century in the martyrdom of christian persons. The murder and torture of these people only served to prove that they were in fact right
 in the eyes of many. One who is known to be wrong is not a threat to the status quo, and it is therefore unnecessary to attack them over their beliefs. 
 
